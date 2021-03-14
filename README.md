@@ -1,4 +1,4 @@
-- 👋 Olá, meu nome é Douglas, tenho 20 anos
+- 👋 Olá, meu nome é Douglas, tenho 20 anos.
 - 💙 Tenho Discord para contato » Doug#7871
 - ❤ Muito obrigado por entrar em meu perfil.
 
