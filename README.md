@@ -1,4 +1,6 @@
 - 👋 Olá, meu nome é Douglas, tenho 20 anos
+- 💙 Tenho Discord para contato » Doug#7871
+- ❤ Muito obrigado por entrar em meu perfil.
 
 <!---
 dougldev/dougldev is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
